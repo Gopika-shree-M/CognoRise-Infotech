@@ -1,1 +1,1 @@
-# Cognorise-Info
+# Cognorise-Infotech
